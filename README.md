@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @iamsherrychen
 - 👀 I’m interested in dancing and try new things.
-- 🌱 I’m currently learning Interior Design and Decoration.
+- 🌱 I’m currently learning Interior Design and Decoration in Sydney. I was a Software Engineer in Taiwan.
 - 💞️ I’m looking to collaborating with you.
 - 📫 How to reach me? +61426959369/sherrychen97@gmail.com
 
